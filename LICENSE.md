@@ -1,4 +1,4 @@
-
+dayz mod menu new Scripts: auto-map reveal & auto-vehicle speed boost is the best dayz mod menu scripts, featuring auto-map reveal and auto-vehicle speed boost. Safe, undetected,
 
 
 
